@@ -7,5 +7,5 @@
 - 💬 Ask me about the right blend of left creative and right analytical brain
 - 📫 How to reach me: vishnoi.anushree@gmail.com/https://www.linkedin.com/in/anushree-vishnoi-96350623/recent-activity/
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact:I know German and am a chemistry graduate and yess I love cats
+- ⚡ Fun fact:I know German, a Chemistry graduate and yess I love cats!
 
